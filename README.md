@@ -1,0 +1,1 @@
+https://github.com/Snej0ksG/slozhno-sosredotochitsya-ad.git
